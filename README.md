@@ -1,4 +1,4 @@
-# Trucchi per Space Shooter Galaxy Attack: risorse illimitate su iOS e Android per dominare la galassia senza limiti
+# Trucchi per Space Shooter Galaxy Attack: risorse illimitate su iOS e Android per conquistare la galassia senza limiti
 
 Space Shooter: Galaxy Attack è uno sparatutto spaziale adrenalinico che ha conquistato milioni di giocatori nel mondo. È semplice da imparare, ma difficile da padroneggiare. A bordo della tua astronave, combatti contro ondate di alieni, boss giganteschi e sfide sempre più impegnative. Ma c’è un ostacolo che tutti i giocatori incontrano prima o poi: la **mancanza di risorse**. Ed è proprio in quel momento che i **trucchi per Space Shooter Galaxy Attack** diventano la tua arma segreta per ottenere **risorse illimitate**, senza download e compatibili con **iOS e Android**.
 
